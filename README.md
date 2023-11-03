@@ -1,2 +1,3 @@
 # hello-world
 ...
+My name is Fernando, 31 years old, and i'm a lawyer that decide to change my career. After almost 8 years working with law, jurisprudence and court, i decide to try something new and, why not what i have think about to do of my life almost 10 years ago? And, here I'm.
